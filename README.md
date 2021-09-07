@@ -1,2 +1,0 @@
-# jiyong
-name
